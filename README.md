@@ -22,4 +22,4 @@
 
 立即访问本站，体验最懂你的成人羞羞免费平台，畅享2025年最全、最快、最爽的日本AV资源，每天都有新片等你来发现！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben666666 ）</span> 
